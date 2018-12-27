@@ -1,2 +1,2 @@
 # hello-world-sample
-I like data and tits, in this order.
+I like data and boobs, in this order.
